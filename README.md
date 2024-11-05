@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/e8657142-0e88-42c6-bdac-6d24da8a5d00)
+https://media1.tenor.com/m/QQ15E8iw8FAAAAAd/mizisua-alien-stage.gif
+
 ![image](https://github.com/user-attachments/assets/93b1d0eb-0f79-478e-97ca-6b090cc964cf)
 
 
